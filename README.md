@@ -10,4 +10,4 @@ utilizo esse espaço para organização e compartilhamento dos meus projetos
 VOCÊ PODE ENTRAR EM CONTATO COMIGO:
 00001106192576sp@al.educacao.sp.gov.br
 
-![](  https://tenor.com/pt-BR/view/rosy00-gif-807982188401805256)
+![](https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif)
